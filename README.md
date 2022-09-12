@@ -1,2 +1,0 @@
-# Shabbir.github.io
-Profile
